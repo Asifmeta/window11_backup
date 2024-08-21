@@ -18,6 +18,7 @@ slect drives of which backup rquired
 ![image](https://github.com/user-attachments/assets/1a5a7add-3ca1-4860-bb56-48b2b7b41772)
 
 # step6
+![image](https://github.com/user-attachments/assets/75a9a771-6f41-49cb-9d72-d67bbd64d971)
 
 # step7
 
